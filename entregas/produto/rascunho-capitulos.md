@@ -134,3 +134,47 @@ Suco de caixinha vendido como natural, que na lista de ingredientes é basicamen
 No próximo capítulo, eu vou te mostrar as substituições inteligentes que eu usei pro paladar do Gabriel, pra você já saber exatamente o que colocar no lugar do que sai da rotina.
 
 **Status:** Aprovado em 2026-09-19.
+
+## Capítulo 5: Substituições inteligentes para o paladar de adolescente
+
+Sabendo ler o rótulo, o próximo desafio é achar o que colocar no lugar do que sai. E aqui eu preciso ser sincera com você: adolescente não aceita "comida de dieta". Se a substituição tiver gosto de castigo, ele simplesmente não come, esconde, ou pede o produto de volta na próxima ida ao mercado. Eu aprendi isso com o Gabriel logo nas primeiras semanas, quando tentei trocar tudo de uma vez por opções sem graça e ele reagiu com resistência.
+
+O que funcionou de verdade foi trocar aos poucos, sempre por algo que tivesse gosto bom por si só, não por obrigação. E sempre que dava, eu levava ele comigo pra escolher entre duas ou três opções, porque quando a troca é imposta ele resiste, mas quando ele participa da escolha, ele aceita muito mais fácil.
+
+Aqui estão as substituições que mais funcionaram aqui em casa, organizadas pelos momentos do dia em que a tentação costuma aparecer.
+
+### Café da manhã e lanche da escola
+
+No lugar do pão francês ou pão de forma branco, pão de forma integral de verdade (aquele com farinha integral entre os primeiros ingredientes, lembra do Capítulo 4) ou tapioca com recheio de queijo, ovo ou frango desfiado.
+
+No lugar do suco de caixinha, água saborizada em casa com fatias de fruta e hortelã, ou água de coco.
+
+No lugar do achocolatado em pó açucarado, leite com cacau 100% e um fio de mel ou adoçante natural, ou canela, que já dá um sabor adocicado sem precisar de açúcar.
+
+### Lanche da tarde
+
+No lugar do salgadinho de pacote, pipoca feita na panela com azeite, ou um mix de castanhas e amendoim torrado sem açúcar.
+
+No lugar do biscoito recheado, biscoito de arroz com pasta de amendoim integral, ou queijo em cubos com uma fruta.
+
+No lugar da barra de cereal industrializada, um ovo cozido com fruta, ou uma barra caseira simples de aveia com pasta de amendoim, fácil de fazer no fim de semana pra durar a semana toda.
+
+### Doce e sobremesa
+
+No lugar do doce ou chocolate ao leite do dia a dia, chocolate com 70% de cacau ou mais, que já tem bem menos açúcar por natureza, ou frutas vermelhas com iogurte natural integral.
+
+### A exceção planejada
+
+Uma coisa que eu aprendi e que fez toda diferença: eu não tentei eliminar 100% pra sempre. Festa de aniversário, churrasco de família, saída com os amigos, eu deixava o Gabriel comer normalmente nesses momentos, sem culpa e sem vigilância. Isso evitou que ele visse o protocolo como uma prisão, e ajudou ele a voltar pra rotina no dia seguinte sem sensação de fracasso.
+
+### Recapitulando
+
+- Substituição só funciona se tiver gosto bom por si só, não por obrigação.
+- Envolver o adolescente na escolha entre opções aumenta muito a aceitação.
+- Trocar aos poucos, um alimento de cada vez, funciona melhor do que trocar tudo de uma vez.
+- Café da manhã, lanche da escola, lanche da tarde e sobremesa têm substituições específicas que cabem na rotina real.
+- Eventos sociais (festa, churrasco, saída com amigos) são exceções planejadas, não motivo de culpa.
+
+No próximo capítulo, eu vou te entregar o cardápio de 4 semanas, dia a dia, já com a lista de compras pronta, juntando tudo que vimos até aqui num plano que você só precisa seguir.
+
+**Status:** Aprovado em 2026-09-19.
