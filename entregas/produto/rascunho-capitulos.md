@@ -98,3 +98,39 @@ O quarto pilar é manter a mesa da família unida. Eu não cozinhei prato separa
 No próximo capítulo, eu vou te ensinar a ler rótulo de embalagem e identificar as armadilhas escondidas que parecem saudáveis mas não são, pra você comprar com segurança no mercado.
 
 **Status:** Aprovado em 2026-09-19.
+
+## Capítulo 4: Como ler rótulos e identificar armadilhas escondidas nos alimentos
+
+Depois que eu entendi os quatro pilares, a parte mais difícil não foi a cozinha. Foi o supermercado. Fui descobrindo aos poucos que boa parte do que está na prateleira com cara de saudável não é lowcarb coisa nenhuma. "Integral", "diet", "light", "zero", "natural", são palavras que vendem, mas que sozinhas não dizem nada sobre o que realmente está dentro daquela embalagem. Eu mesma comprei coisa errada mais de uma vez no começo, confiando só no que estava escrito na frente do produto.
+
+Foi assim que eu aprendi a regra que virou hábito pra sempre: nunca decidir pela frente da embalagem. A resposta de verdade está sempre atrás, na lista de ingredientes e na tabela nutricional.
+
+### Como ler o rótulo na prática
+
+O primeiro passo é ignorar a frente da embalagem e virar direto pra lista de ingredientes. É ali, não no nome do produto, que mora a verdade.
+
+O segundo passo é lembrar da regra da ordem. Os ingredientes aparecem na lista em ordem de quantidade, do que tem mais pro que tem menos. Se açúcar, farinha branca ou xarope aparecem entre os três primeiros da lista, o produto é essencialmente isso, não importa o que diga na frente da caixa.
+
+O terceiro passo é reconhecer os nomes disfarçados de açúcar. A indústria tem muitas formas de escrever "açúcar" sem escrever a palavra "açúcar": dextrose, frutose, glicose, maltose, sacarose, xarope de glicose, xarope de milho, xarope de malte, melado, melaço, mel, rapadura, agave, extrato de malte, concentrado de suco de fruta, caldo de cana desidratado. Todos eles se comportam como açúcar no corpo do seu filho, mesmo escondidos atrás de um nome que parece inofensivo. Vale destacar a maltodextrina à parte: ela nem é feita de açúcar propriamente, é amido bem processado, mas eleva o açúcar no sangue tão rápido quanto o açúcar puro, e é usada como espessante em molhos, sopas, temperos prontos e achocolatados, muitas vezes sem nenhum motivo de doçura.
+
+O quarto passo é desconfiar da palavra "integral" sozinha. Muito pão e biscoito vendido como integral tem farinha branca misturada com uma pequena parte de farinha integral, só o suficiente pra poder usar a palavra na embalagem.
+
+O quinto passo é entender que "diet", "light" e "zero açúcar" não são sinônimos de lowcarb, mesmo parecendo. "Diet" só garante que aquele nutriente específico não foi adicionado, não que o produto é baixo em carboidrato: um doce diet em açúcar ainda pode ter bastante farinha. "Light" significa apenas uma redução mínima de 25% em algum nutriente em relação ao produto original, o que quer dizer que ele ainda pode conter até 75% do açúcar da versão comum. E "zero açúcar" garante só que não foi adicionado açúcar de mesa, mas o produto pode ter quantidade livre de amido e outros carboidratos que sobem a glicemia do mesmo jeito.
+
+O sexto passo é olhar a tabela nutricional com atenção ao tamanho da porção, não só ao número absoluto. Algumas marcas reduzem o tamanho da porção declarada pra fazer o carboidrato parecer menor do que realmente é se o pacote inteiro for consumido, que costuma ser o que acontece na prática com adolescente.
+
+### Armadilhas mais comuns na rotina de adolescente
+
+Suco de caixinha vendido como natural, que na lista de ingredientes é basicamente água, açúcar e suco concentrado. Barra de cereal com a palavra "fit" na embalagem, cheia de xarope de glicose ou maltodextrina. Achocolatado "diet" ou "menos açúcar" que ainda carrega uma quantidade alta de carboidrato pela própria base do produto. Iogurte "light" colorido, com corante e uma lista de ingredientes que mais parece fórmula de laboratório do que comida.
+
+### Recapitulando
+
+- Nunca decidir pela frente da embalagem, a verdade está na lista de ingredientes e na tabela nutricional.
+- Os ingredientes aparecem em ordem de quantidade, do maior pro menor.
+- Açúcar tem vários nomes disfarçados, e a maltodextrina (feita de amido) eleva a glicemia tão rápido quanto açúcar puro.
+- "Diet", "light" e "zero açúcar" não são sinônimos de baixo carboidrato: cada um tem uma definição legal específica que permite bastante carboidrato escondido.
+- Atenção ao tamanho da porção na tabela nutricional, não só ao número absoluto.
+
+No próximo capítulo, eu vou te mostrar as substituições inteligentes que eu usei pro paladar do Gabriel, pra você já saber exatamente o que colocar no lugar do que sai da rotina.
+
+**Status:** Aprovado em 2026-09-19.
