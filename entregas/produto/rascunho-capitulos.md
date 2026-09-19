@@ -66,3 +66,35 @@ Foi entendendo essa lógica que eu parei de olhar pro peso do Gabriel como uma q
 No próximo capítulo, eu vou te mostrar os fundamentos do protocolo lowcarb que eu adaptei pro Gabriel, pra você já começar a enxergar como desenferrujar essa fechadura na prática, sem virar a rotina da sua casa de cabeça pra baixo.
 
 **Status:** Aprovado em 2026-09-19.
+
+## Capítulo 3: Os fundamentos do protocolo lowcarb adaptado para adolescente
+
+Depois de entender a fechadura enferrujada, a pergunta natural é: e agora, o que eu faço na prática? Foi exatamente isso que eu me perguntei quando saí do consultório. E a resposta que eu encontrei não foi um plano alimentar de revista, cheio de prato bonito e ingrediente que nenhum adolescente de verdade aceita comer. Foi um protocolo lowcarb que eu fui ajustando na marra, testando na rotina real da minha casa, até funcionar com o Gabriel.
+
+Esse capítulo é a base de tudo que vem depois neste livro. Antes de te mostrar cardápio, lista de troca ou planilha, eu preciso te mostrar os princípios por trás disso, porque quando você entende o porquê, fica muito mais fácil adaptar pra sua própria casa nos dias em que a receita pronta não encaixar.
+
+### O que lowcarb não é
+
+Lowcarb pra adolescente não é cortar carboidrato zero, tipo dieta cetogênica rígida. Isso não faz sentido pro corpo de quem ainda está em fase de crescimento. O Gabriel continuou comendo arroz, fruta, batata, feijão. O que mudou foi a proporção e, principalmente, a origem do carboidrato que ele comia.
+
+### Os quatro pilares que eu usei
+
+O primeiro pilar é tirar o açúcar líquido da rotina. Refrigerante, suco de caixinha, achocolatado pronto. Isso sozinho já reduz uma quantidade gigante de açúcar que nem passa pela sensação de "estou comendo demais", porque líquido não sacia.
+
+O segundo pilar é trocar o carboidrato refinado pelo carboidrato de verdade. Pão branco, biscoito, salgadinho de pacote, viram pão integral, batata doce, arroz na medida certa. Não é sobre comer menos comida, é sobre trocar o tipo de comida.
+
+O terceiro pilar é colocar proteína e gordura boa em toda refeição. Ovo, carne, queijo, abacate, azeite. Isso é o que segura a fome do adolescente de verdade, porque só carboidrato sacia por pouco tempo e ele volta com fome duas horas depois.
+
+O quarto pilar é manter a mesa da família unida. Eu não cozinhei prato separado pro Gabriel. A família toda comeu a versão lowcarb, e isso fez toda diferença pra ele não se sentir diferente ou punido, só comendo o que todo mundo comia.
+
+### Recapitulando
+
+- Lowcarb pra adolescente não é cortar carboidrato, é trocar a origem e ajustar a proporção.
+- Pilar 1: tirar o açúcar líquido do dia a dia.
+- Pilar 2: trocar carboidrato refinado por carboidrato de verdade.
+- Pilar 3: proteína e gordura boa em toda refeição, pra saciar de verdade.
+- Pilar 4: a família toda come a mesma comida, sem prato separado.
+
+No próximo capítulo, eu vou te ensinar a ler rótulo de embalagem e identificar as armadilhas escondidas que parecem saudáveis mas não são, pra você comprar com segurança no mercado.
+
+**Status:** Aprovado em 2026-09-19.
