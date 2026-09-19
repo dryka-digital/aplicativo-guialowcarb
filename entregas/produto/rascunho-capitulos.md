@@ -36,3 +36,33 @@ O Gabriel perdeu 30 quilos. E o que mais me orgulha não é só o número. É qu
 No próximo capítulo, vou te mostrar o que realmente estava acontecendo no corpo do Gabriel por trás daquele peso, e por que entender isso muda a forma como você vai conduzir essa mudança com o seu filho.
 
 **Status:** Aprovado em 2026-09-19.
+
+## Capítulo 2: O que está por trás do peso do seu filho
+
+Eu lembro exatamente do dia em que levei o Gabriel no endocrinologista pela primeira vez. Fiquei na sala de espera ansiosa, esperando alguma explicação que me ajudasse a entender o que estava acontecendo. Quando finalmente entramos, o médico examinou os exames, olhou pra mim e disse só isso: "ele está pré-diabético, precisa fazer atividade física três vezes por semana". Sem mais nenhuma explicação. Eu saí dali com mais dúvida do que quando entrei. Peguei meus próprios exames, fui pra casa e comecei a pesquisar por conta própria, porque precisava entender o que estava acontecendo dentro do corpo do meu filho, não só receber uma ordem pra cumprir.
+
+O que eu descobri mudou completamente a forma como eu enxerguei aquele peso todo. E é isso que eu quero te contar aqui, do jeito mais simples que eu consegui, porque entender essa parte muda a forma como você vai conduzir a mudança com o seu filho.
+
+### A chave, a porta e a fechadura enferrujada
+
+Pensa assim. Cada célula do corpo do seu filho é como uma porta fechada, esperando para receber a energia dos alimentos que ele comeu. A insulina é a chave que abre essa porta. Quando ele come, o corpo libera insulina, a chave entra na fechadura, a porta abre, e a energia entra na célula, tudo funcionando do jeito que devia.
+
+O problema começa quando esse adolescente passa anos comendo, sem saber, um tipo de alimento que exige liberação de insulina toda hora, em excesso. Refrigerante, salgadinho, pão branco, biscoito recheado, tudo isso vira açúcar no sangue muito rápido, e o corpo precisa soltar cada vez mais chave pra dar conta. Com o tempo, de tanto uso, a fechadura vai enferrujando. A chave até gira, mas com mais dificuldade. O corpo então precisa produzir ainda mais insulina pra conseguir abrir a mesma porta. É isso que os médicos chamam de resistência à insulina. Não é uma doença que aparece do nada, é uma fechadura que foi enferrujando aos poucos.
+
+*[Imagem: infográfico "Entenda o Diabetes de um jeito simples"]*
+
+E enquanto essa chave fica girando cada vez mais na fechadura enferrujada, sobra açúcar circulando no sangue esperando pra entrar. Esse excesso de açúcar no sangue, com o tempo, vai machucando por dentro os vasos sanguíneos, é aí que moram os riscos de verdade, não só o peso que aparece por fora.
+
+Foi entendendo essa lógica que eu parei de olhar pro peso do Gabriel como uma questão de estética ou força de vontade. O peso era só a parte visível. O que precisava de atenção de verdade era essa fechadura enferrujando por dentro, e a única forma de desenferrujar era mudando o tipo de comida que soltava a chave o tempo todo.
+
+### Recapitulando
+
+- A insulina funciona como uma chave que abre a porta das células pra energia entrar.
+- Comer açúcar e carboidrato refinado em excesso força o corpo a soltar chave demais, sem parar.
+- Com o tempo, a fechadura "enferruja": é a resistência à insulina, a raiz do pré-diabetes.
+- O açúcar que sobra no sangue machuca os vasos sanguíneos por dentro, esse é o risco real, além do peso visível.
+- Entender essa lógica muda o foco: não é sobre força de vontade, é sobre o tipo de comida que está sendo oferecida.
+
+No próximo capítulo, eu vou te mostrar os fundamentos do protocolo lowcarb que eu adaptei pro Gabriel, pra você já começar a enxergar como desenferrujar essa fechadura na prática, sem virar a rotina da sua casa de cabeça pra baixo.
+
+**Status:** Aprovado em 2026-09-19.
