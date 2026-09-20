@@ -178,3 +178,105 @@ Uma coisa que eu aprendi e que fez toda diferença: eu não tentei eliminar 100%
 No próximo capítulo, eu vou te entregar o cardápio de 4 semanas, dia a dia, já com a lista de compras pronta, juntando tudo que vimos até aqui num plano que você só precisa seguir.
 
 **Status:** Aprovado em 2026-09-19.
+
+## Capítulo 6: Cardápio de 4 semanas, dia a dia, com lista de compras pronta
+
+Quando o Gabriel decidiu emagrecer e pediu minha ajuda, eu já tinha testado algumas coisas lowcarb pra mudar os meus próprios hábitos. Já estava pesquisando bastante sobre quais alimentos eram lowcarb. Primeiro precisei entender os tipos de nutrientes que existem, porque eu realmente não sabia direito a diferença entre carboidratos, proteínas e gorduras. Fui me aprofundando nisso, principalmente no que impactava a insulina e no que realmente provocava o acúmulo de gordura, que eram os carboidratos.
+
+A partir daí, fui na tabela TACO, a tabela de referência nutricional que a gente tem no Brasil. Coloquei ali os alimentos que eu mais consumia em casa e via a quantidade de carboidrato, proteína e gordura de cada um. Fui listando esses alimentos e diminuindo o acesso aos que eram altos em carboidrato, aumentando o acesso aos alimentos mais proteicos e às gorduras boas.
+
+Teve até uma cena engraçada nessa época: entrei na minha despensa e comecei a tirar todos os alimentos altos em carboidrato, dando mais valor aos alimentos proteicos, que hoje eu entendo como alimentos de alta densidade nutricional. Ou seja, alimentos que realmente nutrem o corpo e dão suporte pra tudo funcionar em equilíbrio. Esse equilíbrio é importante porque, sempre que algo está desequilibrado, o corpo responde. Ganhar peso não é uma coisa normal, é o corpo respondendo que algo não está funcionando bem, e a gente precisa olhar pra isso, não pode fechar os olhos.
+
+Mudei a alimentação de casa de um jeito bem radical na época, porque eu dava muito valor a lanche e petisco. Comprava aqueles pacotinhos de bolacha integral, tudo que era light e diet, achando que estava arrasando. Mas a verdade é que por trás disso existe uma indústria que quer manter a gente dependente dos produtos dela. E, infelizmente, ainda não existem normas rígidas o suficiente, principalmente pensando no público diabético. Hoje dá pra colocar "diet" num produto que usa outros tipos de açúcar ou amido, como a maltodextrina, que eleva a insulina e a glicose quase igual ao açúcar comum, e mesmo assim o produto leva o selo diet na embalagem. O light é ainda mais permissivo: basta reduzir um pouco qualquer um desses nutrientes, carboidrato, gordura ou proteína, pra já poder chamar o produto de light.
+
+O mais importante nessa jornada foi perceber algo incrivelmente diferente: a percepção do que é saciedade de verdade, e a liberdade de não sentir fome o tempo todo. Isso não tem preço, e eu sabia que meu filho também podia sentir a mesma coisa. É exatamente isso que uma alimentação rica em alimentos de alta densidade nutricional faz com o nosso corpo: coisas boas que estavam suprimidas voltam a ter espaço e a funcionar como deveriam.
+
+Os ovos e as carnes foram a base do cardápio do Gabriel. Metade do prato dele sempre era proteína de qualidade e gordura boa. Eu me emociono até hoje quando lembro dessa época, porque ele queria muito sair daquela obesidade e simplesmente fazia o que precisava ser feito. Tem um episódio que preciso contar: no início, ele ainda não entendia muito bem sobre os alimentos, e teve um dia que foi no aniversário de um amigo da escola e, quando chegou lá, me ligou perguntando o que ele deveria comer na festa. Naquele momento eu percebi que a disposição dele pra perder aquele peso extra estava além do que eu imaginava, e desde então entrei em cena pra ajudar ele em todas as fases. Meu coração transbordou de alegria.
+
+É esse cardápio, construído com o que funcionou de verdade aqui em casa, que eu vou te entregar agora.
+
+### Os alimentos-base do cardápio
+
+Esse cardápio segue uma linha lowcarb moderada, bem diferente de dieta cetogênica rígida ou carnívora. A ideia não é cortar tudo, é priorizar.
+
+**Coma à vontade:** carne, peixe, frutos do mar, ovo, vegetais e legumes de folha e de raiz, cogumelos, frutas vermelhas (morango, mirtilo, framboesa, amora). A proteína é o maior inibidor natural de fome que existe, e ajuda a preservar massa magra enquanto o corpo perde gordura. Os vegetais, ricos em fibra, potencializam essa saciedade e trazem sabor e variedade ao prato.
+
+**Arroz, batata doce, feijão, pão integral e tapioca não são alimentos lowcarb.** Eles entram no cardápio como acompanhamento, nunca sozinhos e nunca como a maior parte do prato. A regra é simples: sempre junto de uma boa proteína, como ovo ou carne, e sempre numa proporção menor do que a proteína e os vegetais no prato.
+
+**Evite:** açúcar em qualquer forma, refrigerante e suco industrializado, farinha branca e produtos ultraprocessados (biscoito recheado, salgadinho, macarrão instantâneo, pão de forma comum), margarina.
+
+Vale lembrar: a gordura do alimento não é o que emagrece, ela dá sabor e sustenta a saciedade. Por isso a gente não corta gordura, mas também não precisa buscar a peça mais gorda por escolha, é consumir a gordura natural do próprio alimento, na medida certa.
+
+### Sobre quantidade
+
+Aqui não existe quantidade em gramas, existe bom senso e a própria saciedade entrando em cena nas próximas semanas. Deixe seu filho ouvir o próprio corpo. Se ele decidir parar de comer antes de terminar o prato, não se preocupe, é a percepção de saciedade nascendo, e é exatamente isso que a gente espera da lowcarb.
+
+### Cuidado com rótulos "low carb"
+
+A indústria descobriu essa palavra e passou a usar em tudo. Não caia de novo na armadilha do Capítulo 4: um alimento, pra ser realmente lowcarb, precisa ter 5g de carboidrato ou menos por porção. Sempre desconfie e leia o rótulo, mesmo quando a embalagem disser "low carb" na frente.
+
+### Semana 1 (modelo)
+
+**Segunda**
+Café da manhã: ovos mexidos com queijo e tomate.
+Almoço: frango grelhado, arroz, feijão, salada de folhas à vontade.
+Lanche da tarde: castanhas e uma fruta vermelha.
+Jantar: carne moída com abobrinha refogada e purê de couve-flor.
+
+**Terça**
+Café da manhã: tapioca com queijo e ovo.
+Almoço: peixe assado, batata doce, brócolis.
+Lanche da tarde: iogurte natural com morango.
+Jantar: omelete de legumes com queijo.
+
+**Quarta**
+Café da manhã: pão integral com ovo e abacate amassado.
+Almoço: carne de panela, arroz, salada de folhas e pepino.
+Lanche da tarde: queijo em cubos com um punhado de castanhas.
+Jantar: frango desfiado com legumes salteados.
+
+**Quinta**
+Café da manhã: vitamina de leite com fruta vermelha (sem açúcar).
+Almoço: peixe grelhado, feijão, legumes refogados.
+Lanche da tarde: ovo cozido e fruta.
+Jantar: hambúrguer caseiro (sem pão ou com pão integral) com salada.
+
+**Sexta**
+Café da manhã: tapioca com frango desfiado.
+Almoço: carne assada, arroz, salada colorida.
+Lanche da tarde: iogurte natural com castanhas picadas.
+Jantar: sopa de legumes com carne.
+
+**Sábado**
+Café da manhã: ovos com queijo e tomate.
+Almoço: churrasco em família (carne e frango na brasa, salada, vinagrete), o dia mais social da semana.
+Lanche da tarde: fruta com um punhado de castanhas.
+Jantar: leve, tipo omelete ou sopa.
+
+**Domingo**
+Café da manhã: pão integral com ovo.
+Almoço: almoço em família, proteína no centro do prato, arroz, feijão e salada como acompanhamento.
+Lanche da tarde: fruta vermelha com iogurte.
+Jantar: algo simples, como frango grelhado com legumes.
+
+**Como rodar as semanas 2, 3 e 4:** troque as proteínas de lugar entre os dias, varie os vegetais e legumes conforme o que estiver fresco na feira ou no mercado, e troque 2 ou 3 refeições por semana por opções novas dentro das mesmas categorias. O objetivo não é decorar 28 dias diferentes, é internalizar o padrão até ele virar automático.
+
+### Lista de compras da Semana 1
+
+**Proteínas:** ovos, frango, carne moída, carne de panela, peixe, queijo, iogurte natural.
+**Acompanhamentos:** arroz, feijão, batata doce, pão integral, tapioca.
+**Vegetais e legumes:** tomate, alface e folhas variadas, abobrinha, couve-flor, brócolis, pepino, cebola, legumes para refogado.
+**Frutas:** morango ou outra fruta vermelha da estação, uma fruta comum por dia.
+**Gorduras e extras:** azeite, manteiga, abacate, castanhas, amendoim.
+
+### Recapitulando
+
+- Arroz, batata doce, feijão, pão integral e tapioca não são lowcarb: entram como acompanhamento, sempre com proteína, sempre em proporção menor que ela.
+- Não existe contagem de grama nem prato obrigatoriamente terminado: quem manda é a saciedade do seu filho.
+- Rótulo dizendo "low carb" não é garantia, o alimento precisa ter até 5g de carboidrato por porção. Desconfie e leia sempre.
+- A Semana 1 é o modelo, as semanas 2 a 4 seguem o mesmo padrão, rodando proteínas e variando vegetais.
+- Sábado e domingo têm mais liberdade social, sem perder a base do prato.
+
+No próximo capítulo, eu vou te ensinar como conversar sobre peso com seu filho sem gerar trauma, porque cardápio nenhum funciona se a conversa em casa machucar mais do que ajuda.
+
+**Status:** Aprovado em 2026-09-20.
