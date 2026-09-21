@@ -311,6 +311,16 @@ Lembra do que eu te disse no capítulo do cardápio, que aqui não existe contag
 
 Vai ter dia que ele vai reagir mal, fechar a cara, ou simplesmente não querer falar sobre isso. Nesses momentos, eu aprendi a recuar, não insistir, e tentar de novo em outro momento, mais leve. Insistir numa conversa que ele não quer ter naquele instante só reforça a resistência.
 
+### O que eu não sabia
+
+Na época, eu não sabia de uma parte importante dessa história. O Gabriel não estava feliz com o próprio corpo, e sofria bullying na escola, só que ele não me contava. Ele fez amigos, mas até esses amigos, às vezes, o chamavam por apelidos que ele não gostava, em vez de chamar pelo nome dele. No fundo eu tinha medo de que algo assim estivesse acontecendo, mas nunca levei esse medo a sério o suficiente pra perguntar diretamente. Foi só depois que ele emagreceu que ele me contou várias coisas que aconteciam naquela época, coisas que eu não fazia ideia, e isso doeu muito quando eu ouvi.
+
+Eu conto isso porque é exatamente esse tipo de dor escondida que a gente quer evitar com as orientações deste capítulo. Seu filho pode estar guardando coisas que você nem imagina, e a única forma de criar espaço pra ele contar é garantir que, quando ele falar, não vai encontrar julgamento do outro lado.
+
+### O que ficou depois
+
+O Gabriel recuperou a autoestima e a confiança nele mesmo. E hoje ele não quer ser lembrado como o menino que conseguiu emagrecer. Ele quer ser o homem que aprendeu a fazer diferente, e carrega isso como um aprendizado maior: que a gente tem escolhas, que pode mudar a qualquer momento, e que não importa o estado em que você está agora, você pode escolher o que é melhor pra você.
+
 ### Recapitulando
 
 - A mudança funciona melhor quando nasce de um pedido do filho, não de uma cobrança da mãe.
