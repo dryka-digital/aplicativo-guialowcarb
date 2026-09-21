@@ -333,3 +333,43 @@ O Gabriel recuperou a autoestima e a confiança nele mesmo. E hoje ele não quer
 No próximo capítulo, eu vou te mostrar como acompanhar o progresso do seu filho com a planilha de peso e medidas, pra você enxergar a evolução sem transformar isso numa obsessão por número.
 
 **Status:** Aprovado em 2026-09-21.
+
+## Capítulo 8: Acompanhando o progresso (planilha de peso e medidas)
+
+Depois de tudo que te contei sobre não vigiar o prato e não transformar peso em obsessão, você pode estar se perguntando: então pra que registrar alguma coisa? A resposta é simples. Registrar não é pra pressionar o dia a dia, é pra você enxergar o padrão ao longo dos meses, aquilo que nenhuma conversa isolada consegue mostrar. Foi essa planilha que me deu segurança pra sentar na consulta do pediatra do Gabriel e responder com clareza o que tinha mudado, em vez de "acho que ele está melhor".
+
+### Por que registrar, mesmo sem virar obsessão
+
+O peso do corpo varia todo dia por causa de água, sono, até do que a pessoa comeu na noite anterior. Se você olhar dia a dia, vai ver ruído, não progresso. O valor de registrar está em olhar pra trás depois de um mês, dois meses, seis meses, e ver a curva de verdade, não o soluço de um dia isolado.
+
+### Frequência: semanal, nunca diário
+
+O ideal é pesar e medir uma vez por semana, sempre no mesmo dia e no mesmo horário, de preferência pela manhã. Nunca diário. Pesagem diária é exatamente o tipo de hábito que alimenta obsessão com número, e é isso que a gente está evitando desde o Capítulo 7.
+
+### Meça além do peso
+
+O peso na balança sozinho não conta toda a história, porque o corpo pode estar perdendo gordura e ganhando massa magra ao mesmo tempo, e a balança não diferencia isso. Por isso, além do peso, meça a circunferência da cintura com fita métrica, sempre no mesmo ponto (na altura do umbigo, por exemplo). Essa medida costuma mostrar mudança de composição corporal antes mesmo da balança se mexer.
+
+### Quem registra e quem vê
+
+Esse registro é seu, não é pra virar checagem pública nem pauta de conversa toda semana. Se o seu filho quiser participar e ver os números, ótimo, mas isso parte dele, não é uma cobrança sua em cima do resultado. O valor maior da planilha é pra você, pra acompanhar a evolução com calma e ter dado concreto pra levar ao médico.
+
+### Modelo de registro semanal
+
+| Data | Peso | Cintura | Como ele estava (energia, sono, humor) |
+|---|---|---|---|
+| | | | |
+
+A última coluna é tão importante quanto os números. Anotar disposição, sono e humor te lembra que o objetivo final não é o número na balança, é a saúde e o bem-estar do seu filho como um todo.
+
+### Recapitulando
+
+- Registrar serve pra enxergar o padrão ao longo dos meses, não o ruído do dia a dia.
+- Pese e meça uma vez por semana, sempre no mesmo dia e horário, nunca diariamente.
+- Meça também a cintura, porque a balança sozinha não mostra mudança de composição corporal.
+- O registro é seu, não uma checagem pública, e a participação do filho é opcional e por vontade dele.
+- Anote também disposição, sono e humor, não só o número.
+
+No último capítulo, eu vou te mostrar como manter esse resultado depois que a fase mais intensa da mudança passar, porque o verdadeiro objetivo aqui nunca foi uma dieta com fim marcado, foi uma mudança de vida.
+
+**Status:** Aprovado em 2026-09-21.
