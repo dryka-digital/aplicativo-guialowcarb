@@ -280,3 +280,46 @@ Jantar: algo simples, como frango grelhado com legumes.
 No próximo capítulo, eu vou te ensinar como conversar sobre peso com seu filho sem gerar trauma, porque cardápio nenhum funciona se a conversa em casa machucar mais do que ajuda.
 
 **Status:** Aprovado em 2026-09-20.
+
+## Capítulo 7: Como conversar sobre peso sem gerar trauma
+
+Essa é a dúvida que eu mais escuto de outras mães, e também foi a que mais me tirou o sono antes de começar com o Gabriel. Como eu falo sobre o peso do meu filho sem fazer ele se sentir atacado, sem fazer ele se fechar, sem plantar uma vergonha que ele vai carregar a vida toda? Eu sabia que a forma como eu conduzisse essa conversa seria tão importante quanto o próprio cardápio.
+
+Lembra do episódio que eu contei no capítulo anterior, do Gabriel me ligando da festa perguntando o que ele podia comer? Isso não aconteceu por acaso. Aconteceu porque a mudança nasceu de um pedido dele, não de uma cobrança minha. E foi exatamente essa ordem que eu aprendi a proteger em toda conversa que veio depois.
+
+### Espere a abertura, não force a porta
+
+Eu não sentei o Gabriel numa conversa séria pra anunciar que ele precisava emagrecer. Eu fui mudando a alimentação de casa aos poucos, ele foi sentindo os efeitos, e quando ele mesmo trouxe o assunto e pediu ajuda, foi aí que eu entrei de verdade. Se o seu filho ainda não pediu, você pode ir preparando o terreno, mudando a comida de casa, comendo diferente você mesma, sem fazer disso uma pauta obrigatória toda hora. Quando o convite vier dele, a conversa flui muito mais fácil.
+
+### Fale de energia, não de peso
+
+Toda vez que eu falava com o Gabriel sobre o que estava mudando, eu evitava número na balança e evitava comentar o corpo dele. Eu falava de disposição, de dormir melhor, de ter fôlego pra jogar bola com os amigos, de se sentir mais leve. O foco em como o corpo funciona, e não em como o corpo aparenta, tira o peso emocional da conversa e coloca o assunto num lugar que ele consegue ouvir sem se fechar.
+
+### Nunca na frente de outras pessoas
+
+Comentário sobre o peso ou o prato dele, mesmo que bem intencionado, nunca deve acontecer na frente de irmãos, primos, amigos ou parentes. Isso vira vergonha pública, e vergonha pública é exatamente o tipo de marca que a gente está tentando evitar. Se precisar comentar alguma coisa, é numa conversa só entre vocês dois.
+
+### Troque crítica por parceria
+
+Frases como "você está muito gordo" ou "não pode comer isso" fecham a porta na hora. O que funcionou aqui em casa foi trocar por frases de parceria: "vamos preparar isso juntos", "que tal a gente trocar por…", "eu também estou aprendendo isso junto com você". O Gabriel nunca se sentiu sozinho no processo, porque a casa toda mudou de comida junto com ele, como já te contei lá no Capítulo 3.
+
+### Não vigie o prato
+
+Lembra do que eu te disse no capítulo do cardápio, que aqui não existe contagem de grama nem prato obrigatoriamente terminado? Isso vale pra conversa também. Ficar de olho em cada garfada, comentar quando ele repete o prato ou quando deixa comida, transforma a refeição num momento de vigilância, e isso é o oposto de leveza. Confie no processo e no próprio corpo dele.
+
+### Se ele fechar a cara, recue
+
+Vai ter dia que ele vai reagir mal, fechar a cara, ou simplesmente não querer falar sobre isso. Nesses momentos, eu aprendi a recuar, não insistir, e tentar de novo em outro momento, mais leve. Insistir numa conversa que ele não quer ter naquele instante só reforça a resistência.
+
+### Recapitulando
+
+- A mudança funciona melhor quando nasce de um pedido do filho, não de uma cobrança da mãe.
+- Fale de energia, disposição e como o corpo funciona, não de peso ou aparência.
+- Nunca comente o peso ou o prato dele na frente de outras pessoas.
+- Troque frases de crítica por frases de parceria, e mude a alimentação da casa toda junto com ele.
+- Não vigie o prato, confie na saciedade dele.
+- Se ele fechar a cara, recue e tente de novo depois, sem insistir na hora.
+
+No próximo capítulo, eu vou te mostrar como acompanhar o progresso do seu filho com a planilha de peso e medidas, pra você enxergar a evolução sem transformar isso numa obsessão por número.
+
+**Status:** Aprovado em 2026-09-21.
